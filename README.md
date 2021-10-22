@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CarmenLy06
+- 👀 I’m interested in Coding and computing in general
+- 🌱 I’m currently learning at school
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me email 'carmen_ly@outlook.com'
